@@ -1,2 +1,3 @@
-# Gah DAMN Wth practice shared repository hello!
+# I hate minorities
+
 
