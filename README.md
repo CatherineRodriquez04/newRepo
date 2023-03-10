@@ -1,2 +1,1 @@
-# newRepo
-practice shared repository
+u guys are weird
